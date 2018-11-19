@@ -1,3 +1,3 @@
 ### Gensokyo-no-tegami
 
-A slightly unusual way of contact.
+A historically proven way of contact.
