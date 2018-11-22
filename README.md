@@ -1,3 +1,3 @@
 ### Gensokyo-no-tegami
 
-A historically proven way of contact.
+A historically proven unconventionalness-powered way of contact.
